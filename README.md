@@ -1,4 +1,5 @@
-![Banner](https://user-images.githubusercontent.com/73797975/236004772-49a0061a-763e-4c4b-9558-a606da7ef801.png)
+![Banner](https://user-images.githubusercontent.com/73797975/236005227-8a2915ac-f77a-4938-8dc8-9285f8873b0f.png)
+
 
 
 # IRan RolePlay Community 
